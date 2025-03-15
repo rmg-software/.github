@@ -1,1 +1,1 @@
-# .github
+# RMG Software Consulting
