@@ -4,10 +4,11 @@ With 15 years of experience, I deliver tailored software development services an
 
 [Let’s connect! Book a time that works best for you](https://calendly.com/renato-rmg/lets-connect)
 
-**RMG CONSULTORIA EM TI LTDA**
-45.985.080/0001-10
-+55 (61) 9 9888-0666
-Al. Jaú 1177 Andar 4
-01.420-903 
-São Paulo SP/Jardim Paulista
-Brazil
+**RMG CONSULTORIA EM TI LTDA**  
+Renato Gama  
+45.985.080/0001-10  
++55 (61) 9 9888-0666  
+Al. Jaú 1177 Andar 4  
+01.420-903  
+São Paulo SP/Jardim Paulista  
+Brazil  
